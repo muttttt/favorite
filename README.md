@@ -8,5 +8,6 @@ Regardless of background, disabilities or age, everyone gets the same quality in
 
 ![fighters training in gym](capture.jpg)
 
+More information
 [8limbsUS channel, for translating and documenting muay thai for english viewers.](https://www.youtube.com/@8limbsUs/videos)
 
