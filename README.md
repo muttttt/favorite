@@ -8,6 +8,5 @@ Regardless of background, disabilities or age, everyone gets the same quality in
 
 ![fighters training in gym](capture.jpg)
 
-# for more information I recommend 8limbsUS, a youtube channel dedicated to translating and documenting muay thai in general
-[8LIMBSUS]([https://www.example.com](https://www.youtube.com/@8limbsUs/videos)https://www.youtube.com/@8limbsUs/videos)
+[8limbsUS channel, for translating and documenting muay thai for english viewers.](https://www.youtube.com/@8limbsUs/videos)
 
