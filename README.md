@@ -1,5 +1,6 @@
 # Muay Thai
 > Muay Thai is a buddhist combat sport where anything standing is allowed.
+	[More On Muay Thai](https://yokkao.com/pages/what-is-muay-thai)
 ### Why I like Muay thai
 - Injury avoidance. ironically a buddhist combat sport, the point is to learn and improve, never to injure someone else.
 - Community. The gym for me has been a great, comfortable learning environment where everyone is willing to teach.
