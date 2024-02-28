@@ -8,6 +8,13 @@ Regardless of background, disabilities or age, everyone gets the same quality in
 
 ![fighters training in gym](capture.jpg)
 
+### 5 Places to Learn Muay Thai in Washington
+- Pacific Muay Thai
+- Muaythai Lyarin
+- Muok - Muay Thai & Boxing Club
+- Mat Chess Mixed Martial Arts
+- Combat Arts Academy
+
 More information
 [8limbsUS channel, for translating and documenting muay thai for english viewers.](https://www.youtube.com/@8limbsUs/videos)
 
